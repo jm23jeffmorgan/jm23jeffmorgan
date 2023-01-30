@@ -15,5 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-人生短短数十年, 及时行乐
+**人生短短数十年, 及时行乐!
 
