@@ -1,1 +1,1 @@
-be treated equally
+The Statue Of Liberty
