@@ -1,1 +1,1 @@
-The Statue Of Liberty
+Stay ready, so you don’t need to get ready.
